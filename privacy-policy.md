@@ -38,8 +38,7 @@ You have the right to:
 We may update this Privacy Policy from time to time. We will notify you of any changes by posting the new Privacy Policy on this page.
 
 ## Contact Us
-If you have questions about this Privacy Policy, please contact us at:
-[Your Contact Information]
+If you have questions about this Privacy Policy, please contact us at:reviewreply.ai@gmail.com
 
 ## Children's Privacy
 Our service is not intended for use by children under 13. We do not knowingly collect information from children under 13.
